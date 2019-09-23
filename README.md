@@ -1,1 +1,0 @@
-# seleksi-odop-7
